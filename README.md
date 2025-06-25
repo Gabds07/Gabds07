@@ -8,8 +8,6 @@
 - 📫 How to reach me **gabrielam12102007@gmail.com**
 
 - ⚡ Fun fact **I really apriciate to learn something new.**
-
-<h3 align="left">Connect with me:</h3>
 <p align="left">
 </p>
 
