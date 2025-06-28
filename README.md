@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **gabrielam12102007@gmail.com**
 
-- ⚡ Fun fact **I really apriciate to learn something new.**
+- ⚡ Fun fact **I really appreciate to learn something new.**
 <p align="left">
 </p>
 
